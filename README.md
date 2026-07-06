@@ -1,0 +1,1 @@
+# readmag-assets
